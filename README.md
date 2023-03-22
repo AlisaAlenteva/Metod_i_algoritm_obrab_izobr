@@ -1,0 +1,1 @@
+# Metod_i_algoritm_obrab_izobr
